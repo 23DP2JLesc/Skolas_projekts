@@ -1,1 +1,0 @@
-# Skolas_projekts
